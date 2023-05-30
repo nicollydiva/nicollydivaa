@@ -62,4 +62,7 @@ Linha 3°- Linha Premium
 
     Entre em contato comigo pelo Instragram:
         @nicollyroluda
-   ![gifs-de-coracao-batendo-1](https://github.com/nicollydiva/nicollydivaa/assets/134113959/4326f5bd-1abb-4eaf-9c15-a41accfb050d) 
+  ![camila-loures-salon-line](https://github.com/nicollydiva/nicollydivaa/assets/134113959/8b6f7687-bc24-4fb0-9620-61024078852c)
+
+
+
