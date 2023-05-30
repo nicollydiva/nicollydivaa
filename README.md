@@ -5,7 +5,7 @@ Estou estudando programação
 
 <em> Melius Fenzza 
     
-  <h1> Melius Fenzza </h1>
+  <h1> Melius Fenzza 🤍 </h1>
     
 Rua 15 de Março, Centro – 515, Piso 2, n° 3
 
@@ -59,3 +59,7 @@ Linha 3°- Linha Premium
     • Máscara de cílios
     • Gloss
     • Máscara dermatológica
+
+    Entre em contato comigo pelo Instragram:
+        @nicollyroluda
+   ![gifs-de-coracao-batendo-1](https://github.com/nicollydiva/nicollydivaa/assets/134113959/4326f5bd-1abb-4eaf-9c15-a41accfb050d) 
